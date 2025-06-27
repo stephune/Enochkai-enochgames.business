@@ -1,2 +1,2 @@
-#Enochkai-enochgames.business
-Ethereal 
+#Enochgames.business@gmail.com
+Ethereal Earth's diamond of the Skys
